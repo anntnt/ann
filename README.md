@@ -17,12 +17,4 @@ Here you can take a look at my recent projects.
 
 ### My hobbies
 
-🧘‍♀️ yoga
-
-🚵‍♀️ cycling
-
-🌹 gardening
-
-🏞 traveling
-
-📚 reading
+🧘‍♀️ yoga  🚵‍♀️ cycling 🌹 gardening  🏞 traveling  📚 reading
